@@ -1,1 +1,1 @@
-# final_assigment_coursera
+# final_assigment_özge_karadag
